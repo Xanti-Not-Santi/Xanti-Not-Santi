@@ -1,0 +1,4 @@
+- Ello I’m Xanti :D
+- I’m learning computer science
+- I started coding and computering on 5/5/2023
+- my discord is PQL4R#5046
